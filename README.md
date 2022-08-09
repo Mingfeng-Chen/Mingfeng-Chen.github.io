@@ -1,1 +1,1 @@
-# Click: [Mingfeng-Chen.github.io](https://suiyuechengbei.github.io/Mingfeng-Chen.github.io/)
+# Click: [Mingfeng-Chen](https://suiyuechengbei.github.io/Mingfeng-Chen)
